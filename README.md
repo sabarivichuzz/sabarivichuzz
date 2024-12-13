@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sabarivichuzz
+- 👋 Hi, I’m @Sabarinath 
 - 👀 I’m interested in ...Game developing
 - 🌱 I’m currently learning ...Btech
 - 💞️ I’m looking to collaborate on ...
